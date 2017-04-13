@@ -10,7 +10,7 @@ I hope to find something attracting in the field of IT, cuz i am feeling guilty 
 
 Like most people studying CS, I would like to go to top company like Google. I decide github is my starting point or at least one of the pass to my goal. I am not a good learner plus I am new to github. Also I know this is not facebook, but i would like to meet and know about other people and learn more about computer science here. Its better of course to make some real practically staff with github. Look forward to everything.
 
-I dont even know if others are going to see this but thank you.
+I dont even know if anyone is going to see this but thank you.
 
 
 
